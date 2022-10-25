@@ -4,7 +4,7 @@
 
 - 🌱 Actualmente estoy estudiando programación
 
-- 💞️ Estoy buscando colaborar con un entrenador personal <a href="https://naturaltraining.eu/"> Natural Training</a>
+- 💞️ Estoy colaborando con una  <a href="https://rutasfilipinas.viajes/"> Agencia de viajes</a>
 
 - 📫 Me puedes contactar lligadas2765@gmail.com
 
